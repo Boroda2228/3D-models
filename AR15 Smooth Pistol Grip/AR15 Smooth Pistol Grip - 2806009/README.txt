@@ -1,0 +1,1 @@
+AR15 Smooth Pistol Grip by Hyudryu on Thingiverse: https://www.thingiverse.com/thing:2806009
